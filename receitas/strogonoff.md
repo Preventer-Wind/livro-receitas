@@ -1,4 +1,4 @@
-# Strogonoff
+# Strogonoff de Carne :meat_on_bone:
 
 
 
